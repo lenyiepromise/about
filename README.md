@@ -2,7 +2,7 @@
 - 👀 I’m interested in anything technology and how it can be used to solve problems
 - 🌱 I’m currently learning python for the future
 - 💞️ I look forward to developing programs and a tech corporation that will be very helpful to everyone
-- 📫 How to reach me 
+- 📫 Hit me up on; 
 whatsapp @+234 913 024 1131
 facebook; Lenyie Promise
 ...
